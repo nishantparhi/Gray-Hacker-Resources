@@ -2,8 +2,6 @@
 
 A big bag of Fun. Educational purposes.
 
-![](DJI_0062.jpg)
-
 
 ## ⚡️ Resource Links
 
